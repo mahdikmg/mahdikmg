@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mahdikmg
+- 🌱 I’m looking to collaborate on international projects.
+- 📫 You can contact me by email: mahdikmg1@gmail.com
